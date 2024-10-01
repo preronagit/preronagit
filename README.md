@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **karprerona6@gmail.com**
 
-- ⚡ Fun fact: **I can mimic voices.**
+- ⚡ Fun fact: **I can mimic voices of animals.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
